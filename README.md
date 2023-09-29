@@ -4,4 +4,4 @@ Kathy Qi
 - goal 2
 - goal 3
 <br>
-My favorite Fall drink is a basic PSL.
+My favorite Fall drink is a basic PSL. Yum!
